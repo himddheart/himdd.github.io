@@ -1,3 +1,4 @@
+
 ---
 layout: post
 title:  "5分钟改变你一生的命运"
