@@ -4,8 +4,6 @@ title:  "致我318天逝去的青春"
 date:   2017-02-11 12:41:24 +0800
 categories: himddheart update
 ---
-![2017-02-11-318-days-to-my-lost-youth](../_media/2017-02-11-318-days-to-my-lost-youth.jpg)
-
 我来到一个新的部门，已经318天了。可如今部门已经不在了，只是我还没有离开。
 
 回到那318天前，满怀着激情，怀揣着梦想，希望能有所做为。
